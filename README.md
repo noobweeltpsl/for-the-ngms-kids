@@ -1,4 +1,4 @@
-This is for ngms kids frfr.
+I made this for fun
 
 Artclass Unblocked: https://thick-ainslie-vivbyte-d8c69089.koyeb.app/ 
 
